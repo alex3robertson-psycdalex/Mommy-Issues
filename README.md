@@ -453,6 +453,8 @@ And now?
 You’re not angry at the world.
 You’re angry enough to fix it.
 
+And the thing is, I know that in a way, that's what she wanted. Not, not the drug use, not the addictions, but the turning me into a cold, ruthless profit machine. And I saw it at every step. I saw it. And eventually, after the juvie shit, I almost bought into it and gave her what she wanted. But I'm not doing that anymore.
+
 Yeah.
 She wanted a surgeon,
 not a poet.
